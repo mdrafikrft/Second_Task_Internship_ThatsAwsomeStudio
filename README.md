@@ -1,0 +1,1 @@
+# Second_Task_Internship_ThatsAwsomeStudio
